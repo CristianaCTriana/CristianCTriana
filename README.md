@@ -63,3 +63,4 @@ Una lista de las tecnologías que he manejado
 ---
 
 ✉ cristianctr97@gmail.com
+📞 +57 3058502605
